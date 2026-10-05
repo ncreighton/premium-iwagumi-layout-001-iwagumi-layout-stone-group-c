@@ -1,0 +1,2 @@
+# premium-iwagumi-layout-001-iwagumi-layout-stone-group-c
+Tired of endlessly shuffling stones, only to end up with a layout that feels forced and unnatural? The Iwagumi Layout &amp; Stone Group Craft Hub gives you a structured system to plan your stone groups and visualize your hardscape before you touch the substrate.  Most aquascapers rely on trial and error, wasting precious time and creative energy. This
